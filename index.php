@@ -95,7 +95,7 @@
 <div class="page-header text-center tittle h1"><span style="font-style: italic; color:#e7312d; text-transform: uppercase; line-height: 60px;  font-weight: bold;">FELICIDADES</b></div>
 <div style="text-align: center;">
 <center><span class="headline-note"><font color="">¡Nuestro sistema te ha seleccionado entre los ganadores de hoy! ¡Calificas automáticamente para recibir REGALOS! ¡Regístrese para ganar en segundos y el dinero se enviará automáticamente a su cuenta!</font></span></center>
-<div class="page-header text-center tittle h4"><b>Obtenga dinero en efectivo de mi parte hasta $ 5.000</b></div>
+<div class="page-header text-center tittle h4"><b>Obtenga dinero en efectivo de mi parte hasta CLP$5.000</b></div>
 <p><center><font color=""></font></center></p>
 <div class="page-header text-center"><center><a href="https://tes.shandaikitetsu.site/register.php?sub=toroasu"> <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjMV0a88wDk-pGxG72qALZcXqVoXglpSnPgzX26ioWakI8BW3PV7cHhBsOMYhYyo1DADqpxVpJguhIRXkvHDD8JEvYkG1zpVQeu7LqS3jBa_YduRm49ycILBgL3IDfdCQIyhsDruMTBkFrWjZ_aX9fT3eXaVrYXC-avoJED1qQtxzfF_TTkZb9dFj6ppHj9/s320/Untitled.gif" class="img-responsive"></a></center></div>
 <div class="page-header text-center"><center><a href="https://tes.shandaikitetsu.site/register.php?sub=toroasu"> <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhUBTF9RSUBSINf8DBEjCgBeXRTAVjLUQoKEKHSjUXXofTW8rf53Iqnl-5aF3lhnq9po88KM-C9yoegcf8zZCnMizHRgqd3v4m8tvKgQQJZ9TeT5ih3lCHwNEufqDdVGESuHevFzvhVdlG4xr8GV6ZcA1p44EBIn0YxLHnQuRjau7lLUnJ3IgkTCUhzd-U0/s1009/Untitled%20(2).jpg" class="img-responsive"></a></center></div>

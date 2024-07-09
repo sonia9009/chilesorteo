@@ -7,9 +7,9 @@
 <meta name="viewport" content="width=device-width, initial-scale=1"/>
 <title>¡¡¡Haga clic/visite el SITIO WEB que envié para reclamar el 💸PREMIO EN EFECTIVO!!! 💸 Esto está limitado a solo unos pocos de mis fans.</title>
  <meta name="robots" content="noindex, nofollow" />
-  <meta property="og:image" content="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiCeeEUicUqBaZsZ8ytMYtoIVEPbs5MZtgHQRCwmncwtg6MJn5QjpXzGhNJvhGYQxdUlX8lwBA0ErV_PDZdjKgXudWDTMvI9I2vgBuxQFHq3WQrFfjamYc0EaVTMuThB-_s1V1EAfsKQpNdcyYWOIvF6r2uEpvOzeraorc-g2ZE5EaCwFb4YPBYXgSNAplU/s1200/1aaaa.jpgg"/>
+  <meta property="og:image" content="https://www.shutterstock.com/shutterstock/videos/1082296183/thumb/1.jpg?ip=x480"/>
 
-  <link rel="icon" type="image/png" href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiCeeEUicUqBaZsZ8ytMYtoIVEPbs5MZtgHQRCwmncwtg6MJn5QjpXzGhNJvhGYQxdUlX8lwBA0ErV_PDZdjKgXudWDTMvI9I2vgBuxQFHq3WQrFfjamYc0EaVTMuThB-_s1V1EAfsKQpNdcyYWOIvF6r2uEpvOzeraorc-g2ZE5EaCwFb4YPBYXgSNAplU/s1200/1aaaa.jpg" />
+  <link rel="icon" type="image/png" href="https://www.shutterstock.com/shutterstock/videos/1082296183/thumb/1.jpg?ip=x480" />
 <link href="https://foryou5000.site/cloudme.fonts.googleapis.com/css?family=Asap:400,700,400italic,700italic" rel="stylesheet" type="text/css"/>
 <link href="https://maxcdn.bootstrapcdn.com/font-awesome/4.3.0/css/font-awesome.min.css" rel="stylesheet"/>
 <link href="https://maxcdn.bootstrapcdn.com/bootstrap/3.3.5/css/bootstrap.min.css" rel="stylesheet"/>
@@ -95,7 +95,7 @@
 <div class="page-header text-center tittle h1"><span style="font-style: italic; color:#e7312d; text-transform: uppercase; line-height: 60px;  font-weight: bold;">FELICIDADES</b></div>
 <div style="text-align: center;">
 <center><span class="headline-note"><font color="">¡Nuestro sistema te ha seleccionado entre los ganadores de hoy! ¡Calificas automáticamente para recibir REGALOS! ¡Regístrese para ganar en segundos y el dinero se enviará automáticamente a su cuenta!</font></span></center>
-<div class="page-header text-center tittle h4"><b>Obtenga dinero en efectivo de mi parte hasta CLP$5.000</b></div>
+<div class="page-header text-center tittle h4"><b>Obtenga dinero en efectivo de mi parte hasta CLP$1.000.000</b></div>
 <p><center><font color=""></font></center></p>
 <div class="page-header text-center"><center><a href="https://tes.shandaikitetsu.site/register.php?sub=toroasu"> <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjMV0a88wDk-pGxG72qALZcXqVoXglpSnPgzX26ioWakI8BW3PV7cHhBsOMYhYyo1DADqpxVpJguhIRXkvHDD8JEvYkG1zpVQeu7LqS3jBa_YduRm49ycILBgL3IDfdCQIyhsDruMTBkFrWjZ_aX9fT3eXaVrYXC-avoJED1qQtxzfF_TTkZb9dFj6ppHj9/s320/Untitled.gif" class="img-responsive"></a></center></div>
 <div class="page-header text-center"><center><a href="https://tes.shandaikitetsu.site/register.php?sub=toroasu"> <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhUBTF9RSUBSINf8DBEjCgBeXRTAVjLUQoKEKHSjUXXofTW8rf53Iqnl-5aF3lhnq9po88KM-C9yoegcf8zZCnMizHRgqd3v4m8tvKgQQJZ9TeT5ih3lCHwNEufqDdVGESuHevFzvhVdlG4xr8GV6ZcA1p44EBIn0YxLHnQuRjau7lLUnJ3IgkTCUhzd-U0/s1009/Untitled%20(2).jpg" class="img-responsive"></a></center></div>
